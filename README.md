@@ -1,1 +1,0 @@
-# ezgidaskin.github.io
